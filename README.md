@@ -1,1 +1,1 @@
-# Pensamento_1A-
+# Pensamento_1A
